@@ -7,7 +7,7 @@
 
 - 🔭 I’m currently working on **data science**
 
-- 🌱 I’m currently learning **Varendra university**
+- 🌱 I’m currently studing **Varendra university**
 
 - 📫 How to reach me **nuralam39580@gmail.com**
 
